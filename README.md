@@ -20,7 +20,7 @@ I'm also a programmer, hoping to create things that shift how others see the wor
 While I value my anonymity and try to protect it, I know that sometimes holding back can make it harder to connect or grow.
 
 I believe the phrase **“life is not fair”** is something everyone should come to understand.  
-But I like to add: *“...but that doesn’t mean we can’t try to make it better.”*
+But I like to add: **“...but that doesn’t mean we can’t try to make it better.”**
 
 Now you know a little more about me — and maybe my anonymity is just a bit more out the window.
 
