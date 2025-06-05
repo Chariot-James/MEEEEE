@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Stellar-Chariot or James!
+ Hi, I’m @Stellar-Chariot or James!
 Welcome to my page!
   How did you get here?
 Well anyways, this is my place and I hope to grow it and bring joy to myself and others.
