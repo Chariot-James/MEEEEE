@@ -26,6 +26,8 @@ Now you know a little more about me — and maybe my anonymity is just a bit mor
 
 I aim to make some pretty things and some useful things.
 
+---
+
 Feel free to check out what I’m working on!  
 You might have to wait for me to post it publicly...
 
