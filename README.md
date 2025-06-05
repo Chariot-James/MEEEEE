@@ -1,4 +1,4 @@
- # Hi, I’m @Stellar-Chariot (or James)!
+ # Hi, I’m @Chariot (or James)!
 
 ---
 
