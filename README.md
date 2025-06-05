@@ -8,8 +8,7 @@ Welcome to my page!
 
 ### How did you get here?
 
-Well, anyways, this is *my* place —  
-a space where I hope to grow, create, and bring joy to myself and others.
+Well, anyways, this is *my* place and I hope to grow, create, and bring joy to myself and others.
 
 I aim to make some pretty things and some useful things.
 
